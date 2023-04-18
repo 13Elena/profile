@@ -1,1 +1,1 @@
-A short bio to describe myslef ☺️🧁👩‍💻
+A short bio to describe myself ☺️🧁👩‍💻
